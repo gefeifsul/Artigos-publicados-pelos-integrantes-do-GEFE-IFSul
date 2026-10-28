@@ -10,4 +10,4 @@
 
 5. Pedagogias de gênero moda, discurso e subjetividades nas páginas do jornal “O Tempo”: https://dialnet.unirioja.es/servlet/articulo?codigo=10760234
 
-6. 
+6. A FABRICAÇÃO DE DISCURSOS A PARTIR DO FEMINEJO: UMA REVISÃO SISTEMÁTICA: https://periodicorease.pro.br/rease/pt_BR/article/view/24783
