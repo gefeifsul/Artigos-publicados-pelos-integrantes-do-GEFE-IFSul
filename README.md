@@ -9,3 +9,5 @@
 4. A palavra de ordem é emagreça! O autocontrole e a autorregulação dos corpos dos sujeitos na revista AnaMaria: https://revistadaanpoll.emnuvens.com.br/revista/article/view/1743
 
 5. Pedagogias de gênero moda, discurso e subjetividades nas páginas do jornal “O Tempo”: https://dialnet.unirioja.es/servlet/articulo?codigo=10760234
+
+6. 
